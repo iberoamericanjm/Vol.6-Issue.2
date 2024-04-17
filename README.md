@@ -3,7 +3,7 @@ Iberoamerican Journal of Medicine, Volume 6, Issue 2 (2024)
 
 We are so proud in announce that a new issue (Vol. 6, Issue 2) has been released in May. Please check our web (http://www.iberoamjmed.com) to read content.The articles published are:
 
-Enthesitis and seronegative arthritis induced by Dupilumab: how relevant are these adverse events? Hurtado Moreno AM, Osorio U, Peña Forest JT, Ortega Sierra M. Iberoam J Med. 2024;5(2):42-44. doi: 10.53986/ibjm.2024.0011.
+Enthesitis and seronegative arthritis induced by Dupilumab: how relevant are these adverse events? Hurtado Moreno AM, Osorio U, Peña Forest JT, Ortega Sierra M. Iberoam J Med. 2024;6(2):42-44. doi: 10.53986/ibjm.2024.0011.
 
 Oliván-Gonzalvo G. Temporal trends in growth of boys adopted from Russia. Iberoam J Med. 2024;5(2):45-50. doi: 10.53986/ibjm.2024.0009.
 
