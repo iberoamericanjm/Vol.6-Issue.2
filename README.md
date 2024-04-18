@@ -5,7 +5,7 @@ We are so proud in announce that a new issue (Vol. 6, Issue 2) has been released
 
 Enthesitis and seronegative arthritis induced by Dupilumab: how relevant are these adverse events? Hurtado Moreno AM, Osorio U, Peña Forest JT, Ortega Sierra M. Iberoam J Med. 2024;6(2):42-44. doi: 10.53986/ibjm.2024.0011.
 
-Oliván-Gonzalvo G. Temporal trends in growth of boys adopted from Russia. Iberoam J Med. 2024;5(2):45-50. doi: 10.53986/ibjm.2024.0009.
+Oliván-Gonzalvo G. Temporal trends in growth of boys adopted from Russia. Iberoam J Med. 2024;6(2):45-50. doi: 10.53986/ibjm.2024.0009.
 
 Küçük U, Mutlu P, Mirici A, Özpınar U. Mitral Annular Plane Systolic Excursion: An Early Marker of Subclinical Left Ventricular Function in COVID-19 Survivors. Iberoam J Med. 2024;5(2):51-59. doi: 10.53986/ibjm.2024.0012.
 
